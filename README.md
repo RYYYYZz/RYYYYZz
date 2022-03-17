@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RYYYYZz
-- 👀 I’m interested in writing
+- 👀 I’m interested in writing and coding
 - 🌱 I’m currently learning how to work for google
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
